@@ -8,6 +8,11 @@
 
 * [Judi Hunter](https://github.com/michaellavelle2025/judi_hunter)
 
+### Music Videos relevant to these case studies
+
+* [Company B - Fascinated](https://youtube.com/watch?v=-b-6ksMdkrU)
+
+
 # Targets of Psychopaths
 
 ## Case Studies
