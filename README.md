@@ -12,6 +12,9 @@
 
 * [Company B - Fascinated](https://youtube.com/watch?v=-b-6ksMdkrU)
 
+* [Heart - Alone](https://youtube.com/watch?v=1Cw1ng75KP0)
+
+* [Sabrina - Boys Boys Boys (1987)](https://youtube.com/watch?v=ed3PFYVtha8)
 
 # Targets of Psychopaths
 
